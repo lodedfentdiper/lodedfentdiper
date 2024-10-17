@@ -1,3 +1,2 @@
 # @lodedfentdiper
-hi i like cybersecurity stuff.
-thats it.
+hi i make stuff once in a while, and usually im bad at it.
